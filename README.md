@@ -6,7 +6,7 @@
 - 🌱 Estou aprendendo **Python** e **Java**
 - 💬 Me pergunte sobre qualquer coisa, terei prazer em ajudar!
 - 📫 Como me encontrar: **jpribeirofelix**
-- ⚡ Curiosidade: Adoro aprender coisas novas!
+- 
 
 <br><br><br><br><br><br>
 
